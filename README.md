@@ -1,0 +1,2 @@
+# UAS_Portfolio_SamuelHutagalung
+Pengumpulan UAS
